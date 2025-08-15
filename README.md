@@ -1,16 +1,20 @@
-## Hi there 👋
+# ⋆˙⟡ Welcome to Artzii's showtime!! ⋆˙⟡
 
-<!--
-**s3ntienc-e/s3ntienc-e** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+  ✧･ﾟ: *✧･ﾟ:* ▶︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• 1:43 ✧･ﾟ: *✧･ﾟ:*
 
-Here are some ideas to get you started:
+  <img align="center" alt="Coding" width="400" src="https://static.wikia.nocookie.net/forsaken2024/images/9/91/Nightshade_two_time_render.png/revision/latest/scale-to-width-down/2100?cb=20250427205633">
 
-- 🔭 I’m currently working on ... something
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+### ׂ╰┈➤ Helloooo, my name is Artzii, or Akaii, if you so wish!
+
+#### ── .✦ I really like Forsaken, as most times you'll find me cosplaying as some of the characters. However, from time to time, I also like cosplaying other various characters from gacha games such as Genshin Impact, Cookie Run Kingdom and such!
+
+#### ── .✦ I am not particularily social, as I happen to find interactions quite exhausting pretty often. Regardless, unless specified, I encourage you to come up to me! I might not talk a lot, but I will surely be more than happy to cuddle!
+
+#### ── .✦ Some of my hobbies are painting, digital drawing and occasionally writting.
+
+#### ── .✦ I have a very big interest in clowns and jesters, most of my comfort characters being such, aswell as my personal style representing it.
+
+   <img align="center" alt="Coding" width="400" src="https://i.pinimg.com/736x/e8/2e/8b/e82e8b8257d9d1d48ccb94485ea2aae5.jpg">
+
+   ###### can you tell Two Time and Azure are my favorite characters to ever exist?
