@@ -15,6 +15,8 @@
 
 #### ── .✦ I have a very big interest in clowns and jesters, most of my comfort characters being such, aswell as my personal style representing it.
 
+##### ≽^• ˕ • ྀི≼ if you are reading this, please remember to sign my ata!˚ʚ♡ɞ˚
+
    <img align="center" alt="Coding" width="400" src="https://i.pinimg.com/736x/e8/2e/8b/e82e8b8257d9d1d48ccb94485ea2aae5.jpg">
 
    ###### can you tell Two Time and Azure are my favorite characters to ever exist?
