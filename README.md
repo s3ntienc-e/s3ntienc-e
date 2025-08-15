@@ -1,8 +1,15 @@
-# ⋆˙⟡ Welcome to Artzii's showtime!! ⋆˙⟡
 
-  ✧･ﾟ: *✧･ﾟ:* ▶︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• 1:43 ✧･ﾟ: *✧･ﾟ:*
+  
+   # ⋆˙⟡ Welcome to Artzii's showtime!! ⋆˙⟡
 
-  <img align="center" alt="Coding" width="400" src="https://static.wikia.nocookie.net/forsaken2024/images/9/91/Nightshade_two_time_render.png/revision/latest/scale-to-width-down/2100?cb=20250427205633">
+
+   <p align="center">
+   ✧･ﾟ: *✧･ﾟ:* ▶︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• 1:43 ✧･ﾟ: *✧･ﾟ:
+<p\>
+
+
+
+  <img align="center" alt="Coding" width="1000" src="https://static.wikia.nocookie.net/forsaken2024/images/9/91/Nightshade_two_time_render.png/revision/latest/scale-to-width-down/2100?cb=20250427205633">
 
 
 ### ׂ╰┈➤ Helloooo, my name is Artzii, or Akaii, if you so wish!
@@ -17,6 +24,6 @@
 
 ##### ≽^• ˕ • ྀི≼ if you are reading this, please remember to sign my ata!˚ʚ♡ɞ˚
 
-   <img align="center" alt="Coding" width="400" src="https://i.pinimg.com/736x/e8/2e/8b/e82e8b8257d9d1d48ccb94485ea2aae5.jpg">
+   <img align="center" alt="Coding" width="1000" src="https://i.pinimg.com/736x/e8/2e/8b/e82e8b8257d9d1d48ccb94485ea2aae5.jpg">
 
    ###### can you tell Two Time and Azure are my favorite characters to ever exist?
