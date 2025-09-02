@@ -18,7 +18,7 @@
 
 #### ── .✦ I am not particularily social, as I happen to find interactions quite exhausting pretty often. Regardless, unless specified, I encourage you to come up to me! I might not talk a lot, but I will surely be more than happy to cuddle!
 
-#### ── .✦ Some of my hobbies are painting, digital drawing and occasionally writting.
+#### ── .✦ Some of my hobbies are painting, digital drawing and occasionally writing.
 
 #### ── .✦ I have a very big interest in clowns and jesters, most of my comfort characters being such, aswell as my personal style representing it.
 
