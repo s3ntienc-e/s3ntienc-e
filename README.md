@@ -9,7 +9,7 @@
 
 
 
-  <img align="center" alt="Coding" width="1000" src="https://static.wikia.nocookie.net/forsaken2024/images/9/91/Nightshade_two_time_render.png/revision/latest/scale-to-width-down/2100?cb=20250427205633">
+  <img align="center" alt="Coding" width="1000" src="https://imgur.com/a/7zomd3z">
 
 
 ### ׂ╰┈➤ Helloooo, my name is Artzii, or Akaii, if you so wish!
