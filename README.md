@@ -8,8 +8,8 @@
 <p\>
 
 
-
-  <img align="center" alt="Coding" width="1000" src="https://static.wikia.nocookie.net/forsaken2024/images/9/91/Nightshade_two_time_render.png/revision/latest/scale-to-width-down/2100?cb=20250427205633">
+ ![Image Alt](https://github.com/s3ntienc-e/s3ntienc-e/blob/7ec6029d563b2bc3cf6aeeb0e3fa54d4b6f3cc82/glory.jpg)
+  
 
 
 ### ׂ╰┈➤ Helloooo, my name is Artzii, or Akaii, if you so wish!
