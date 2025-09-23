@@ -7,7 +7,7 @@
    ✧･ﾟ: *✧･ﾟ:* ▶︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• 1:43 ✧･ﾟ: *✧･ﾟ:
 <p\>
 
-<img align="center" alt="Coding" width="1000" src="https://github.com/s3ntienc-e/s3ntienc-e/blob/main/Welcome.png?raw=true">
+<img align="center" alt="Coding" width="1000" src="https://github.com/s3ntienc-e/s3ntienc-e/blob/main/Welcome_20250923211040.png?raw=true">
   
 
 
