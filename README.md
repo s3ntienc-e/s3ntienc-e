@@ -7,7 +7,7 @@
    ✧･ﾟ: *✧･ﾟ:* ▶︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• 1:43 ✧･ﾟ: *✧･ﾟ:
 <p\>
 
-<img align="center" alt="Coding" width="1000" src="https://github.com/s3ntienc-e/s3ntienc-e/blob/7ec6029d563b2bc3cf6aeeb0e3fa54d4b6f3cc82/glory.jpg">
+<img align="center" alt="Coding" width="1000" src="https://github.com/s3ntienc-e/s3ntienc-e/blob/main/woo.jpg?raw=true">
   
 
 
